@@ -1,5 +1,5 @@
 
-## Boas vindas ao meu perfil 🎱lue_heart
+## Boas vindas ao meu perfil 🥇
 
 Meu nome é João Gabriel
 - Estou estudando na Alura
