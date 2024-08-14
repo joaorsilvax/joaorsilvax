@@ -1,5 +1,5 @@
 
-## Boas vindas ao meu perfil 🥇
+## Boas vindas ao meu perfil 🥊
 
 Meu nome é João Gabriel
 - Estou estudando no Colegio Regina tokano
