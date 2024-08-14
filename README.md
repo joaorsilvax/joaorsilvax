@@ -9,4 +9,4 @@ compartilhamento dos meus projetos desenvolvidos
 
 e-mail: joao.silva1009@escola.pr.gov.br 🎈
 
-![Rodrigo garro](![https://media.tenor.com/MCBkr6dWLkUAAAAM/corinthians-rodrigo-garro.gif)
+![sherek](https://media.tenor.com/ZARBViZffU4AAAAM/hd-smirk.gif)
